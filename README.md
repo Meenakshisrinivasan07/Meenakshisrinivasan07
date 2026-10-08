@@ -15,5 +15,5 @@ I’m passionate about **HR Generalist| HR Executive | HR Operation | HR Recruit
 
 ## 🎯 Career Interest
 
-**HR Generalist | HR Operations | HR Analytics | analytics | Finance Executive | Finance Analytics**
+**HR Generalist | HR Executive |  HR Operation | HR Recruitment & Talent Acquisition**
 
